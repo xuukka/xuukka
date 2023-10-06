@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @xuukka
-- 👀 I’m interested in makinng friends !!
+- 👀 I’m interested in making new friends !!
 - 🌱 I’m currently learning a new language 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me samanthamaldonado125@Gmail.cm
